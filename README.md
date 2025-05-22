@@ -1,0 +1,1 @@
+Guide: https://basicenglishspeaking.com/3000-most-common-words/
